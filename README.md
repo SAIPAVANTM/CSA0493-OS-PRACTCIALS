@@ -1,0 +1,2 @@
+# CSA0493-OS-PRACTCIALS
+Tumu Mani Sai Pavan - 192225011
